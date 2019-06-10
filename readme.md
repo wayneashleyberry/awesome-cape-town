@@ -224,5 +224,6 @@ Barre Body Greenpoint - be there 15mins before to get a spot on the weekend
 
 ## Functional Training Classes
 
-Switch on Bree St Sweat1000 - cardio and weight class - The Point Mall in Sea
-Point
+Switch on Bree St
+
+Sweat1000 - cardio and weight class - The Point Mall in Sea Point
