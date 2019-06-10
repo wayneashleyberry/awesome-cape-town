@@ -1,5 +1,25 @@
 # Awesome Cape Town
 
+- [Markets and Things Happening](#markets-and-things-happening)
+- [Must Do](#must-do)
+- [Restaurants](#restaurants)
+- [Breakfast / Brunch / Lunch](#breakfast---brunch---lunch)
+- [Smoothies and Juices](#smoothies-and-juices)
+- [Bars](#bars)
+- [Coffee / Hot Chocolate](#coffee---hot-chocolate)
+- [Wine Farms](#wine-farms)
+  - [Constantia](#constantia)
+- [Surfing](#surfing)
+  - [Beginners](#beginners)
+  - [More Advanced](#more-advanced)
+- [Best Beaches](#best-beaches)
+- [Hikes](#hikes)
+- [Runs](#runs)
+- [Lap Pool](#lap-pool)
+- [Yoga](#yoga)
+- [Barre](#barre)
+- [Functional Training Classes](#functional-training-classes)
+
 ## Markets and Things Happening
 
 Saturday Morning Market - Oranjezicht Market - also known as Granger Bay Market
@@ -73,8 +93,11 @@ Jason's on Bree St or Main Road Greenpoint - pastries and breakfast
 
 ## Smoothies and Juices
 
-Spirit Cafe - Dunkley Square, Gardens Nourish'd - Kloof st, Gardens Nu -
-Greenpoint, Sea Point or Wembley Square
+Spirit Cafe - Dunkley Square, Gardens
+
+Nourish'd - Kloof st, Gardens
+
+Nu - Greenpoint, Sea Point or Wembley Square
 
 ## Bars
 
