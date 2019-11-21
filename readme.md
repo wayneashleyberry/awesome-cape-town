@@ -22,33 +22,37 @@
 
 ## Markets and Things Happening
 
-### 1. Oranjezicht Market - also known as Granger Bay Market
+#### 1. Oranjezicht Market - also known as Granger Bay Market
 Food stalls, coffee, fresh fruit & veg, plants, other items. Great vibe.
->Venue: V&A Waterfront
->Open: Sat & Sun, 9am-1pm, Wed 4-8pm (Nov - March)
->[More info](https://ozcf.co.za/market-day/)
+
+>- Venue: V&A Waterfront
+>- Open: Sat & Sun, 9am-1pm, Wed 4-8pm (Nov - March)
+>- [More info](https://ozcf.co.za/market-day/)
 
 
-### 2. Old Biscuit Mill
+#### 2. Old Biscuit Mill
 Always packed, nice morning out. Food stalls, coffee, other bits and pieces.
-Rosetta makes good coffee near the Biscuit Mill (in Woodstock Exchange)
->Venue: Old Biscuit Mill, Albert Road, Woodstock
->Open: Sat 9am-3pm
->[More info](http://www.neighbourgoodsmarket.co.za/visitor-info)
+Pro Tip: Rosetta makes good coffee near the Biscuit Mill (in Woodstock Exchange)
 
-### 3. First Thursdays
+>- Venue: Old Biscuit Mill, Albert Road, Woodstock
+>- Open: Sat 9am-3pm
+>- [More info](http://www.neighbourgoodsmarket.co.za/visitor-info)
+
+#### 3. First Thursdays
 First Thursday of every month - Along Bree St and in town - night market and all
 shops and bars open late etc.
-Check out the Hidden Gin Bar behind _Honest Chocolate_ in Wale St
->Venue: Bree St, Long St, around there
->Open: First Thursday of every month, 6-10pm
->[More info](https://first-thursdays.co.za/cape-town/)
+Pro Tip: Check out the Hidden Gin Bar behind _Honest Chocolate_ in Wale St
 
-### 4. Zeitz MOCAA
+>- Venue: Bree St, Long St, around there
+>- Open: First Thursday of every month, 6-10pm
+>- [More info](https://first-thursdays.co.za/cape-town/)
+
+#### 4. Zeitz MOCAA
 Contempory Art museum at Silo Hotel
->Venue: Silo Hotel, V&A Waterfront
->Open: most days
->[More info](https://zeitzmocaa.museum/)
+
+>- Venue: Silo Hotel, V&A Waterfront
+>- Open: most days
+>- [More info](https://zeitzmocaa.museum/)
 
 ## Must Do
 
