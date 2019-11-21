@@ -22,20 +22,33 @@
 
 ## Markets and Things Happening
 
-Saturday Morning Market - Oranjezicht Market - also known as Granger Bay Market
-(at the waterfront) - open 9-1pm. Local foods and coffee
+### 1. Oranjezicht Market - also known as Granger Bay Market
+Food stalls, coffee, fresh fruit & veg, plants, other items. Great vibe.
+>Venue: V&A Waterfront
+>Open: Sat & Sun, 9am-1pm, Wed 4-8pm (Nov - March)
+>[More info](https://ozcf.co.za/market-day/)
 
-The Biscuit Mill - Woodstock - every Saturday morning - always packed, nice
-morning out. Rosetta makes good coffee near the Biscuit Mill (in Woodstock
-exchange)
 
+### 2. Old Biscuit Mill
+Always packed, nice morning out. Food stalls, coffee, other bits and pieces.
+Rosetta makes good coffee near the Biscuit Mill (in Woodstock Exchange)
+>Venue: Old Biscuit Mill, Albert Road, Woodstock
+>Open: Sat 9am-3pm
+>[More info](http://www.neighbourgoodsmarket.co.za/visitor-info)
+
+### 3. First Thursdays
 First Thursday of every month - Along Bree St and in town - night market and all
-shops and bars open late etc. 6-10pm
+shops and bars open late etc.
+Check out the Hidden Gin Bar behind _Honest Chocolate_ in Wale St
+>Venue: Bree St, Long St, around there
+>Open: First Thursday of every month, 6-10pm
+>[More info](https://first-thursdays.co.za/cape-town/)
 
-Roundhouse - The Glen (near Camps Bay) - The Lawns is a great place to have
-lunch and lounge in the sun
-
-Zeitz MOCAA - art museum at Silo Hotel
+### 4. Zeitz MOCAA
+Contempory Art museum at Silo Hotel
+>Venue: Silo Hotel, V&A Waterfront
+>Open: most days
+>[More info](https://zeitzmocaa.museum/)
 
 ## Must Do
 
@@ -44,7 +57,7 @@ have to reserve a place and they only allow a certain amount of people up every
 day. The drink may be a little pricey but the view and experience is well worth
 it
 
-Kayak at sunrise - there’s a place in Mouille Point that does this - google them
+Kayak at sunrise - there’s a place in Mouille Point that does this - [Atlantic Outlook](https://www.atlanticoutlook.com/)
 
 ## Restaurants
 
